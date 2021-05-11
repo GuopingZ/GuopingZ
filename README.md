@@ -34,13 +34,3 @@ Here are some ideas to get you started:
 > Email: diffzhang@gmail.com  
 > 公众号：  
 > ![公众号：平哥之美](公众号二维码.png)
-
-
-### 👯 交个朋友
-
-💬 我的唯一私信。  
-> ![微信：平哥之美](微信二维码.jpg)
-
-
-
-
